@@ -1,2 +1,2 @@
-# yoona
+# yoona/yuna 
 sullyoon my love
